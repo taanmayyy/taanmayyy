@@ -4,4 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-
+Hi everyone, My name is Tanmay Singh Lodhi and I'm from Bhopal, Madhya Pradesh. I'm a Front end Developer and Graphic Designer.
+I've worked with many good clients and had an internship at Growth Heads Digital and for the past 3 years, I've been spending a lot of time on my Graphic designing skills using Adobe Illustrator and Photoshop. Currently, I'm focusing on my web-development and it's going pretty smooth.
+Also if you need a logo send me a mail or message me on LinkedIn.
+E-mail- tanmaylodhi510@gmail.com 
